@@ -2,7 +2,7 @@
 
 ## Work
 
-### Company 2
+### Company 2(N+0.5)
 
 POV: 
 Some people value the appearance, which are totally different with the personalities of X.
