@@ -24,4 +24,9 @@ Not daily reports because X didn't want to disturb the life of F. But this time,
 
 X don't dream this and remain blank answers.
 F smell something. This experience & result isn't such common.
-X don't like debate. This exp is quite interesting.
+
+X got indirect messages from L(02/12/2023, 04/03/2024, 08/03/2024). L said: X should be more "humble" and focus on the "relations".
+No other technical messages.
+But X didn't nothing. So how did the relations become bad? The key also is how did X offend them. How.
+
+This exp is quite interesting. Abstract nouns can let people trap in the unknowns. BUT FORM THIS IT IS BECAUSE OF POLITICS.
