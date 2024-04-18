@@ -2,7 +2,7 @@
 
 ## Work
 
-### Company 2(N+0.5, probationary period)
+### Company 2(0*N+0.5, probationary period)
  
 Some people value the appearance, which are totally different with the personalities of X.
 F said, the beard, the level, the something at the first time.
